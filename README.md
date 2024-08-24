@@ -10,4 +10,3 @@
 
 😄 Pronouns: He/Him
 
-⚡ Fun fact: Love exploring hidden travel spots!
