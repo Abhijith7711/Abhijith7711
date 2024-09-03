@@ -1,4 +1,4 @@
-👋 Hi, I’m @Abhijith7711
+👋 Hi, I’m Abhijith
 
 👀 Interested in Data Science and Machine Learning
 
